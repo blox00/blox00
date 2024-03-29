@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @blox00
+- 👋 Hi, I’m @blox00, but you can call me noxy.
 - 👀 I’m interested in coding!
 - 🎮 I also like playing games!
 - 💞️ I don't feel like collaborating, I work on my own!
