@@ -5,6 +5,8 @@
 - 📫 You can reach to me through my Scratch, PenguinMod, or Gamejolt profiles.
 - 😄 Pronouns: He/him
 - ⚡ Fun fact: This is a fun fact :D
+- Scratch/PenguinMod profile: @tiersacodes
+- Gamejolt profile: @BloxyLIVE
 
 <!---
 blox00/blox00 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
