@@ -1,9 +1,9 @@
 - 👋 Hi, I’m @blox00, but you can call me noxy.
-- 👀 I’m interested in coding!
+- 👀 I’m interested in coding (well, not that much anymore but I still do)!
 - 🎮 I also like playing games!
 - 💞️ I don't feel like collaborating, I work on my own!
 - 📫 You can reach to me through my Scratch, PenguinMod, or Gamejolt profiles.
-- 😄 Pronouns: He/him
+- 😄 Pronouns: he/him/she/her
 - ⚡ Fun fact: This is a fun fact :D
 - Scratch/PenguinMod profile: @tiersacodes
 - Gamejolt profile: @BloxyLIVE
